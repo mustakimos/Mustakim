@@ -1,0 +1,2 @@
+# Mustakim
+Sobai shiyar kro
